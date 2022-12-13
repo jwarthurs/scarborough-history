@@ -9,4 +9,6 @@ The Scarborough Bluffs are an imposing feature at the edge of Lake Ontario: prom
 
 This paragraph has been added so I can take a screenshot
 
+Wave action from Lake Ontario and quarrying have eroded the Bluffs. ![Bluffs](https://trcaca.s3.ca-central-1.amazonaws.com/app/uploads/2017/02/17174438/20f7642d-ab2b-4a49-b3c1-9486f49c67e0.jpg)
+
     
